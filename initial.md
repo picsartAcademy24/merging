@@ -1,1 +1,1 @@
-Hello everyone
+Hello everyone, we are starting Git Merging.
