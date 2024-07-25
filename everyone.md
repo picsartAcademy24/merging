@@ -1,21 +1,21 @@
-# Everyone
+# Everybody
 
 I've got a felling
 A felling deep inside - oh yeah
 I've got a felling
 A felling I can't hide. Oh no
 
-Everyone had a hard year
-Everyone had a good time
-Everyone had a wet dream
-Everyone saw the sun shine
+Everybody had a hard year
+Everybody had a good time
+Everybody had a wet dream
+Everybody saw the sun shine
 
-Everyone had a hard year
-Everyone let their hair down
-Everyone pulled their socks up
-Everyone put their foot down
+Everybody had a hard year
+Everybody let their hair down
+Everybody pulled their socks up
+Everybody put their foot down
 
-Everyone had a hard year
-Everyone put their feet up
-Everyone had a face-life
-Everyone had a new cup
+Everybody had a hard year
+Everybody put their feet up
+Everybody had a face-life
+Everybody had a new cup
