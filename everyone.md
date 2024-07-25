@@ -7,7 +7,7 @@ A felling I can't hide. Oh no
 
 Everyone had a hard year
 Everyone had a good time
-Everyone had the boot in
+Everyone had a wet dream
 Everyone saw the sun shine
 
 Everyone had a hard year
