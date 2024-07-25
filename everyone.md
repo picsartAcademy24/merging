@@ -10,9 +10,9 @@ Everybody had a good time
 Everybody had a wet dream
 Everybody saw the sun shine
 
-Everybody had a hard year
+(Yeah) Everybody had a hard year
 Everybody let their hair down
-Everybody pulled their socks up
+Everybody pulled their socks up (yeah)
 Everybody put their foot down
 
 Everybody had a hard year
